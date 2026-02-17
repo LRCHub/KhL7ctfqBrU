@@ -1,0 +1,105 @@
+# Limp Bizkit – ジャスト・ライク・ディス
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Get up!
+Get up!
+Like this!
+Just like this!
+Do you feel it?
+Then get up!
+Just like this!
+Do you wanna catch the vibe
+that's keepin' me alive?
+Following these fat ass beats
+till I die
+Fill em with tension, the sick
+dimension
+Rumble the earth with my
+lowered suspension
+Watch the ground move, let the
+sound prove
+That it ain't fake when the
+girls get naked
+Don't call it a comeback, we
+bring that beat back
+And we made sure that John kept
+them beats phat
+A lyrical rampage burnin' your
+headset
+Open your minds my rhymes ain't
+dead yet
+I want you to stand up, put
+them hands up
+I'll break it on down cuz
+you're pumpin' my band up
+Like this!
+Just like this!
+Come on!
+Get up!
+Get up, get up!
+Music is key
+It's the way we're set free
+From all this world is throwin'
+at me
+The rhythm's so insane; it's
+flowin' through your vein
+Triggerin the neck poppin nerve
+up in your brain
+I don't even know ya, but came
+to show ya
+The Bizkit's Limp when the
+night is over
+We shake the whole place, make
+this earth quake
+And it aint fake when we start
+the riots
+So rock the bells
+Psycho females doin' time
+blowin' up the phone lines
+Call it a stampede comin' to
+your town
+We aint gonna hold back; we're
+comin to get down
+I want you to stand up, put
+them hands up
+And break it on down cuz you're
+pumpin' my band up
+Like this!
+Just like this!
+Get higher!
+Come on!
+Get up!
+Music is key
+It's the way we're set free
+From all this world is throwin'
+at me
+And I'll do what it takes
+If I make some mistakes
+It's okay cuz it's all just the
+way it should be
+A-break it...
+Limp Bizkit's in the house,
+y'all...
+Limp Bizkit's in the house,
+y'all...
+Limp Bizkit's in the house,
+y'all...
+Ay-yo John... bring that beat
+back!
+Uh!
+Just like this!
+Do you feel it?
+Just like this!
+Yo, bring that beat back like
+this!
+Music is key
+It's the way we're set free
+From all this world is throwin'
+at me
+And I'll do what it takes
+If I make some mistakes
+It's okay cuz it's all just the
+way it should be.
+```
